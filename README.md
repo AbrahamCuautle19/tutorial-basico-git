@@ -12,3 +12,5 @@ el mero cambio
 
 xd
 
+por que no cambias la ptm
+ya me harte 
